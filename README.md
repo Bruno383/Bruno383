@@ -1,4 +1,4 @@
-#  BRUNO RAMOS
+#  👨🏽‍💻 BRUNO RAMOS
 
 
 Me chamo BRUNO RAMOS , tenho 22 anos e sou natural de Brasilia-DF. Concluí o ensino médio no CENTRO EDUCAIONAL DO LAGO, com o curso técnico em informática. Atualmente, estou cursando Análise e Desenvolvimento de Sistemas na UDF. Sou apaixonadO por tecnologia.
